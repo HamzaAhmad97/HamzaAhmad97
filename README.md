@@ -1,1 +1,1 @@
-- 👋 Hi, I’m DaMhAzMaH
+- 👋 Hi, I’m DaMhAzMaH, Ra or Hamza Ahmad, whichever suits you.
