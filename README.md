@@ -1,1 +1,1 @@
-I stand for what is concerned with learning and self improvement, as I aim for that level of understanding incomparable. I am driven by the sense of possibility in software development, and if I aim to learn something, I will definitely learn it. I am not just trying to build the next big thing, but in addition I am trying to **unlock my mind**, whatever this is supposed to mean.
+Switched to Butbucket.
